@@ -1,2 +1,1 @@
-# photoomax
-photoomax
+https://www.photoomax.com/photoomax
